@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @abbensch
+- 👀 I’m interested in: your mom
+- 🌱 I’m currently learning: whatever my boyfriend teaches me
+- 💞️ I’m looking to collaborate on: nothing, i don't want friends
+- 📫 How to reach me: don't
+- 😄 Pronouns: she/her
+- ⚡ Fun fact: you're mom
